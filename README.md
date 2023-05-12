@@ -1,2 +1,0 @@
-# prueba-conciliacion
-PRUEBA CONCILIACION
